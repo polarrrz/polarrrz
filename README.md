@@ -1,4 +1,4 @@
-### hai lorena 👋
+### james eu quero uma salada de fruta 👋
 
 <!--
 **polarrrz/polarrrz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
